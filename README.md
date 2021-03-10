@@ -1,1 +1,1 @@
-# sewer-troll-discord-nuke-bot
+the sewer troll
